@@ -2,7 +2,7 @@
 
 # https://dadiao.neocities.org
 
-# 大吊成人福利导航（现用网址）
+# 大吊成人情色福利导航（现用网址）
 
 # https://7k7kacg.com
 
